@@ -54,5 +54,3 @@ A plan to enhance competitiveness through various indicators of OTT platform
 ![슬라이드0052](https://github.com/rohamvo/OTT-flatform-analysis/assets/117894782/059c6428-cec7-444c-9eef-06b1e1127a32)
 ![슬라이드0053](https://github.com/rohamvo/OTT-flatform-analysis/assets/117894782/e164e7c3-2698-4d98-884a-37fe4e96f4a7)
 ![슬라이드0054](https://github.com/rohamvo/OTT-flatform-analysis/assets/117894782/b3f324d8-05d5-48dc-b220-6ee244a5741f)
-![슬라이드0055](https://github.com/rohamvo/OTT-flatform-analysis/assets/117894782/6d04febe-c2cf-4085-8989-96cd75e8cb8b)
-![슬라이드0056](https://github.com/rohamvo/OTT-flatform-analysis/assets/117894782/c2c7228b-c8da-4515-befc-e467e86dbdac)
